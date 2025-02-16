@@ -4,5 +4,5 @@
 - I'm from Brazil! It's not as cool as you think, and climate change made it twice as worse.
 - I go by He/Him, but honestly, you can call me anything, I don't take that too seriously.
 - Here's my strawpage for a little more info on me + fanarts made by my friends: https://polluxtvhead.straw.page
-- 
+  
 - Fun fact: Someone really likes your presence, but isn't brave enough to say it out loud because that's usually frowned down upon!
